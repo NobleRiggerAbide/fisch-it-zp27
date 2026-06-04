@@ -1,4 +1,4 @@
-#  
+#  fisch it stealth Script is the best fisch it Script, featuring silent aim and fly. Safe and powerful for all your needs.
 
 
 
